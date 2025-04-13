@@ -5,8 +5,7 @@
 
 "The kindest Flowers wilt the fastest"
 
-
-[[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3c467c&interchange=true&bar_color=9392af&bar_color_cover=false)]]
+[![https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3c467c&interchange=true&bar_color=9392af&bar_color_cover=false)]]
 
 
 
