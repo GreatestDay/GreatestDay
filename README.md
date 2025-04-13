@@ -10,6 +10,7 @@
 Dont give up your life for some crappy person who you think you love
 
 
+![](https://komarev.com/ghpvc/?username=HeavenPiercehim)
 
 
 
