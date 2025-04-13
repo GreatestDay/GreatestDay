@@ -4,10 +4,8 @@
 
 
 "The kindest Flowers wilt the fastest"
-` ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
 
-[[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=default&show_offline=true&background_color=aab5df&interchange=true&bar_color=62678d)]]
 
 
 
