@@ -11,5 +11,7 @@ i love my friends i guess like platonically idfk
 
 for my friends ;
 your dead body would be the first one i pull out of the pool after you drown  💋
+
+WARNING: im a 𝓕𝓻𝓮𝓪𝓴
 </div>
 
