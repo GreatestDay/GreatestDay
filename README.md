@@ -1,6 +1,6 @@
 <div align="center">
  
- ![image](https://static.wikia.nocookie.net/houkai-star-rail/images/7/7a/Sunday_Gift_of_Odyssey_2.7.png/revision/latest/scale-to-width-down/250?cb=20241209223633))
+ ![image](https://static.wikia.nocookie.net/houkai-star-rail/images/7/7a/Sunday_Gift_of_Odyssey_2.7.png/revision/latest/scale-to-width-down/250?cb=20241209223633)
 
 "The kindest Flowers wilt the fastest"
 
