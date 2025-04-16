@@ -9,7 +9,7 @@
 
 "I shivered beneath you...All wrapped up in embers"
 
-![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=angles )
+![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Stars)
 
 
 
