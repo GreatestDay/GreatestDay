@@ -1,6 +1,6 @@
 <div align="center">
  
- ![image](https://static.wikia.nocookie.net/battlefordreamisland/images/7/75/Black_Hole_New_Body.png/revision/latest/smart/width/400/height/225?cb=20250122024816)
+ ![image](https://i.pinimg.com/474x/ef/86/d9/ef86d94d7e64f07a8f94d6e12c6a384c.jpg)
  
 "Underneath the sheets... you enchanted me... And whispered sweet nothings in my ear"
 
