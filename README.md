@@ -9,7 +9,7 @@
 
 "h-hakita chan..when gabriel..? ><" - nako 2025
 
-![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=council)
+![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Guests)
 
 
 
