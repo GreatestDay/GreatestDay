@@ -1,6 +1,6 @@
 <div align="center">
  
- ![image](https://i.pinimg.com/736x/a2/73/7a/a2737aebd7ee19552117bef7a0301288.jpg)
+ ![image](https://i.pinimg.com/736x/d7/69/c6/d769c6f482e97c21d748e50f200eae11.jpg)
  
 im a big boygirlthingidfk ok? 
 
