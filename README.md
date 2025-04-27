@@ -1,8 +1,8 @@
 <div align="center">
 
-SHADOWS DIE TWICE
+I L L    S E E     Y O U     I N     P U R G A T O R Y 
  
- ![image](https://camo.githubusercontent.com/2edea49afbbe5e78eed329a347b429cc42803cc29cf5b34e3e94ac2174c73609/68747470733a2f2f66696c65732e636174626f782e6d6f652f6371303472632e706e67)
+ ![image](https://i.pinimg.com/736x/28/76/58/2876586982f34d732cb33899378e86c3.jpg)
 
 WARNING: im a cis guy, maybe transfem!
 
