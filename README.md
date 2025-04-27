@@ -9,7 +9,7 @@ WARNING: im a cis guy, maybe transfem!
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ADD8E6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-"h-hakita chan..when gabriel..? ><" - nako 2025
+TWIST THE KNIFE AND LOSE YOUR MIND, THERE IT IS YOUR SIDE IS BLEEDING. HOLD MY HAND AND TELL ME THAT ITS NOT MY FAULT
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Guests)
 
