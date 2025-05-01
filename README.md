@@ -2,7 +2,8 @@
 
 D I V I N E   P U M P K I N   G U I D E   M E 
  
- ![image](https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:dbggcwk5igfhtsxsisa7d2bz/bafkreigxwojkuq6pzvmrgkpb5wqsi3mlq6yn2zo3x67fjsbmc6s3m5qkxy@jpeg)
+ ![image](![image](https://github.com/user-attachments/assets/f5848caa-c1d7-4480-a759-9e255286500c)
+
 
 WARNING: im a cis guy, maybe transfem!
 
