@@ -2,7 +2,7 @@
 
 I L L    S E E     Y O U     I N     P U R G A T O R Y 
  
- ![image](https://i.pinimg.com/736x/28/76/58/2876586982f34d732cb33899378e86c3.jpg)
+ ![image](https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:dbggcwk5igfhtsxsisa7d2bz/bafkreigxwojkuq6pzvmrgkpb5wqsi3mlq6yn2zo3x67fjsbmc6s3m5qkxy@jpeg)
 
 WARNING: im a cis guy, maybe transfem!
 
