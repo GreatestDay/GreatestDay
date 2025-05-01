@@ -2,7 +2,7 @@
 
 D I V I N E   P U M P K I N   G U I D E   M E 
  
- ![image](![image](https://github.com/user-attachments/assets/f5848caa-c1d7-4480-a759-9e255286500c)
+ ![image](https://github.com/user-attachments/assets/f5848caa-c1d7-4480-a759-9e255286500c)
 
 
 WARNING: im a cis guy, maybe transfem!
