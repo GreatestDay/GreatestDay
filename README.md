@@ -1,9 +1,8 @@
 <div align="center">
 
-D I V I N E   P U M P K I N   G U I D E   M E 
+Hitch a ride to hell!
 
-![68747470733a2f2f63646e2e62736b792e6170702f696d672f666565645f66756c6c73697a652f706c61696e2f6469643a706c633a6462676763776b356967666874737873697361376432627a2f6261666b7265696778776f6a6b757136707a766d72676b70623577717369336d6c7136796e327a6f337-](https://github.com/user-attachments/assets/9a1ac811-7498-4673-9edd-9cc3d078b4f6)
-
+https://static.wikia.nocookie.net/fd1a4103-6aaf-4834-8407-aeaf74ba2983/scale-to-width/755
 
 
 WARNING: im a cis guy, maybe transfem!
