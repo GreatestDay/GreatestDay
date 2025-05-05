@@ -2,8 +2,7 @@
 
 Hitch a ride to hell!
 
-https://static.wikia.nocookie.net/fd1a4103-6aaf-4834-8407-aeaf74ba2983/scale-to-width/755
-
+![image](https://static.wikia.nocookie.net/fd1a4103-6aaf-4834-8407-aeaf74ba2983/scale-to-width/755)
 
 WARNING: im a cis guy, maybe transfem!
 
