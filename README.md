@@ -1,8 +1,9 @@
 <div align="center">
 
-Hitch a ride to hell!
+ts pmo
 
-![image](https://static.wikia.nocookie.net/fd1a4103-6aaf-4834-8407-aeaf74ba2983/scale-to-width/755)
+![image](https://i.pinimg.com/736x/d5/80/c4/d580c4400c126838989d1caeabcb28ef.jpg)
+
 
 nako is fat
 
