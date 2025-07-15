@@ -1,6 +1,6 @@
 <div align="center">
 
-![image](https://i.pinimg.com/originals/58/96/a1/5896a11a4f9f545eb9747e3caa7465c9.gif)
+![image](https://i.pinimg.com/736x/97/7e/18/977e189c7d6f616ae0218b578b9b83b6.jpg)
 
 me when ANOTHER fuckin myth is a bad person kicks rocks
 
