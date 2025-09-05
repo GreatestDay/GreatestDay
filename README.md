@@ -1,6 +1,6 @@
 <div align="center">
  
-![image](https://files.catbox.moe/0v5eem.png)
+![image](https://www.pinterest.com/pin/452471093834845281/)
 
 [Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://buzzkiller.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
