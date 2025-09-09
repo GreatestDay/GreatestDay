@@ -2,7 +2,7 @@
  
 ![image](https://i.pinimg.com/736x/90/89/c0/9089c04fcb4b0920b9bfa160e019e19f.jpg)
 
-[Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://buzzkiller.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+[Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://arthurmarwood.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
 ` If i, Open wide..one of us may get lost inside. ` 
 
