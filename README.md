@@ -9,7 +9,7 @@
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Electrons)
 
-![image](https://i.pinimg.com/1200x/d9/3e/f7/d93ef7494652ac9df31dbf0e7f948da2.jpg)
+![image](https://i.pinimg.com/736x/fa/92/c5/fa92c555ca2523888d1a581c77333422.jpg)
 
 </div>
 
