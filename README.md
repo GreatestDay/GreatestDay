@@ -3,7 +3,7 @@
 
 [Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://arthurmarwood.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
-` Love you forever, don't let go of me, I left my own homeland to chase reverie ` 
+` ONE TIMES GOT NO CASE! ` 
 
 
 
