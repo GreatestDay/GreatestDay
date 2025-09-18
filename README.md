@@ -9,7 +9,7 @@
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
-![image](https://i.pinimg.com/736x/fa/92/c5/fa92c555ca2523888d1a581c77333422.jpg)
+![image](https://i.pinimg.com/736x/d0/15/70/d015701d48e3a7843f6b069a515a0561.jpg)
 
 </div>
 
