@@ -3,7 +3,7 @@
 
 [Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://arthurmarwood.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
-` How do i look, ozo.. ` 
+` Is it really you? Have my prayers been answered.. ` 
 
 -13 DNI! Once i turn 18 -15 wont be allowed to int, unless previous friend before. dont use the excuse of "oh well i just turned [age] idc i dont want any fuckin kids interacting with me. Oct/18
 
