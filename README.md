@@ -11,7 +11,9 @@ when my brain keeps jumping to the good part in the fake scenario but i havent d
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
-![image](https://i.pinimg.com/736x/73/b7/02/73b7022ad6295dc774eb9b740fe29df0.jpg) @akchouu
+@akchouu
 
+
+![image](https://i.pinimg.com/736x/73/b7/02/73b7022ad6295dc774eb9b740fe29df0.jpg) 
 </div>
 
