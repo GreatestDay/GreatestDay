@@ -3,7 +3,7 @@
 
 [Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://arthurmarwood.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
-` Is it really you? Have my prayers been answered.. ` 
+` Grinded 10 hours just to hear a single flipside song ` 
 
 when my brain keeps jumping to the good part in the fake scenario but i havent decided on a backstory yet 🤣 Is this relatable chat? leave a life down below press that subscribe button and hit that notification bell if this is #relatable!
 
