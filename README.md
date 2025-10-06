@@ -1,7 +1,7 @@
 <div align="center">
   Biggest Traffic kinnie ! 
 
-[Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://arthurmarwood.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+[Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://trafyczzz.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
 ` Grinded 10 hours just to hear a single flipside song ` 
 
