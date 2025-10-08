@@ -5,11 +5,7 @@
 
 ` Grinded 10 hours just to hear a single flipside song ` 
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=60296b&bar_color_cover=false">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=60296b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 when my brain keeps jumping to the good part in the fake scenario but i havent decided on a backstory yet 🤣 Is this relatable chat? leave a life down below press that subscribe button and hit that notification bell if this is #relatable!
 
