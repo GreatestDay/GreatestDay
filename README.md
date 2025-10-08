@@ -5,6 +5,8 @@
 
 ` Grinded 10 hours just to hear a single flipside song ` 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=60296b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 when my brain keeps jumping to the good part in the fake scenario but i havent decided on a backstory yet 🤣 Is this relatable chat? leave a life down below press that subscribe button and hit that notification bell if this is #relatable!
 
 [like button](https://www.youtube.com/watch?v=Aq5WXmQQooo)
@@ -13,8 +15,5 @@ when my brain keeps jumping to the good part in the fake scenario but i havent d
 
 
 ![image](https://i.pinimg.com/736x/81/d7/25/81d725c91b1f880f9f9d71c4281983e2.jpg) 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=92497f)](https://github.com/kittinan/spotify-github-profile)
-
 </div>
 
