@@ -13,5 +13,8 @@ when my brain keeps jumping to the good part in the fake scenario but i havent d
 
 
 ![image](https://i.pinimg.com/736x/81/d7/25/81d725c91b1f880f9f9d71c4281983e2.jpg) 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=92497f)](https://github.com/kittinan/spotify-github-profile)
+
 </div>
 
