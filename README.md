@@ -1,5 +1,5 @@
 <div align="center">
-  Biggest Traffic kinnie ! 
+  Blehhh
 
 [Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://trafyczzz.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
