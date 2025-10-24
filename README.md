@@ -7,7 +7,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5a3a69&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-when my brain keeps jumping to the good part in the fake scenario but i havent decided on a backstory yet 🤣 Is this relatable chat? leave a life down below press that subscribe button and hit that notification bell if this is #relatable!
+No DNI free int i,ll block ya if i dislike yer behavior
 
 [like button](https://www.youtube.com/watch?v=Aq5WXmQQooo)
 
