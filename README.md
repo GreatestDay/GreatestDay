@@ -14,6 +14,6 @@ No DNI free int i,ll block ya if i dislike yer behavior
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/81/d7/25/81d725c91b1f880f9f9d71c4281983e2.jpg) 
+![image](https://i.pinimg.com/736x/2a/e7/07/2ae7072b6651772a7f8e88ad751d7c46.jpg) 
 </div>
 
