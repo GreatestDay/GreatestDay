@@ -13,6 +13,6 @@ Biggest loser in the world! roblox Myths hmu :eyes:
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=red&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/47/a3/c2/47a3c2020500f517f29647540feaf06d.jpg) 
+![image](https://i.pinimg.com/1200x/bd/0e/cd/bd0ecd0d1a32d865b83119bf8ea8f4b1.jpg) 
 </div>
 
